@@ -2,4 +2,4 @@
 This is my website! Hope yall enjoy
 This is a cat. He's very angry.
 
-[(https://media.wired.co.uk/photos/60c8730fa81eb7f50b44037e/3:2/w_3329,h_2219,c_limit/1521-WIRED-Cat.jpeg)]
+**https://s36537.pcdn.co/wp-content/uploads/2020/12/2101_NewCattitude_GettyImages-525982070.png**

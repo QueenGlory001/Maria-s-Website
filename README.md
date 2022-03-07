@@ -1,3 +1,3 @@
 # hey
-This is my website! Hope yall enjoy
+This is my website! More will be added soon
 
